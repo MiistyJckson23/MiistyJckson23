@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MiistyJckson23
 - 👀 I’m interested in ...a plethora of things
-- 🌱 I’m currently learning ...how to tap into my Shamanic poers and more
+- 🌱 I’m currently learning ...how to tap into my Shamanic powers and more
 - 💞️ I’m looking to collaborate on ...any and everything that i can benefit from
 - 📫 How to reach me ...through here only
 - 😄 Pronouns: ...MII-ST-Y
